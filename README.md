@@ -1,5 +1,8 @@
 # WEEEEEEEEEE
-**light**/lain - he/him . . . i love making friends so please interact with me!! asd + bpd; currently fixated on **one piece**, **frutiger aero/old web**, jjba etc.
+**light**/lain - he/him . . . i love making friends so please interact with me!! asd + bpd; currently fixated on **one piece**, **frutiger aero/old web**, **racheldrawsthis games**, marine biology, the ship zosan,  jjba etc.
+
+misc interests:
+serial experiments lain, neon genesis evangelion, glaive, ericdoa, drawing, chillas art games, pokemon, death note, my ocs, spongebob, roblox, minecraft bedwars, and sodaaaaaa ^_^
 im rly not kidding when i say i love interactions !!! i get anxious talking first so dont be scared to strike convo/whisper me when im away/busy ^-^
 
 dni proship, 15-, 25+, mcyt/hazbin/homestuck fans, **if you ship lawlu pls go away**.
