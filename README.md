@@ -1,5 +1,5 @@
 # WEEEEEEEEEE
-**light**/lain - he/him . . . i love making friends so please interact with me!! asd + bpd; currently fixated on **one piece**, **frutiger aero/old web**, **racheldrawsthis games**, marine biology, the ship zosan,  jjba etc.
+**light**/lain - he/him . . . 17 (12/29/06) i love making friends so please interact with me!! asd + bpd; currently fixated on **one piece**, **frutiger aero/old web**, **racheldrawsthis games**, marine biology, the ship zosan,  jjba etc.
 
 misc interests:
 serial experiments lain, neon genesis evangelion, glaive, ericdoa, drawing, chillas art games, pokemon, death note, my ocs, spongebob, roblox, minecraft bedwars, and sodaaaaaa ^_^
